@@ -1,0 +1,1 @@
+https://events.ccc.de/congress/2017/wiki/index.php/Projects:Dogecoin_Altar
